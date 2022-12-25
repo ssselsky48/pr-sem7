@@ -18,7 +18,8 @@
 ![image](https://user-images.githubusercontent.com/60671160/209343989-7df609ad-6417-427c-8b04-b2ce658c0637.png)
 
 ### Отчет (pdf)
-
+![image](https://user-images.githubusercontent.com/60671160/209479707-e965ba80-28b1-44fb-9e4e-59887872262f.png)
 
 ### Отчет (docx)
+![image](https://user-images.githubusercontent.com/60671160/209479716-2aebfda6-31bf-4726-8bbd-4a79221b8715.png)
 
